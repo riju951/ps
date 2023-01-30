@@ -1,3 +1,1 @@
 # Rijans' Personal Website
-
-opoohdjdj
