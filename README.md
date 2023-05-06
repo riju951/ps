@@ -1,2 +1,2 @@
 # Rijans' Personal Website
-Op
+Riju Boi op in the Chat
