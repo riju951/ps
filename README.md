@@ -1,2 +1,2 @@
 # Rijans' Personal Website
-Riju
+Riju Boi OP
