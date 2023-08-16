@@ -1,2 +1,1 @@
 # Rijans' Personal Website
-Bio
