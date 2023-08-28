@@ -1,2 +1,2 @@
 # Rijans' Personal Website
-Rijans OP in the chats 
+Rijans OP in the 
